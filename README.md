@@ -1,1 +1,1 @@
-This is a portfolio about working in Hong Kong International Airport. It also includes a reference information to the work that I was responsible for.   
+This is a portfolio about working in Hong Kong International Airport. An information to the work portfolio has been enclosed for reference.   
